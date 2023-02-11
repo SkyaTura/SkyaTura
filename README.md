@@ -16,8 +16,6 @@
 
 ## Coders Rank
 
-Just a showoff
-
 _Just a show off, not that really means anything_
 
 [My Profile](https://profile.codersrank.io/user/skyatura)
